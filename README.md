@@ -12,8 +12,8 @@
 <li>He sucks at Fortnite</li>
 <li>He has VERY skinny penis</li>
 <li>He likes to scream </li>
-<li>He likes to kill roblox streamers</li>
-  <li>His real name is Calvin Guan</li>
+<li>He likes to stream snipe roblox streamers</li>
+  <li><strong>His real name is Calvin Guan</strong></li>
 </ul>
 
 
