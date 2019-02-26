@@ -10,7 +10,7 @@
 
 <ul>
 <li>He sucks at Fortnite</li>
-<li>He has VERY skinny penis</li>
+  <li><strong>He has VERY skinny penis</strong></li>
 <li>He likes to scream </li>
 <li>He likes to stream snipe roblox streamers</li>
 
