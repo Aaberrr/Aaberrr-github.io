@@ -13,7 +13,7 @@
 <li>He has VERY skinny penis</li>
 <li>He likes to scream </li>
 <li>He likes to stream snipe roblox streamers</li>
-  <li><strong>His real name is Calvin Guan</strong></li>
+
 </ul>
 
 
