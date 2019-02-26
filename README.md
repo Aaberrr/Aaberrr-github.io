@@ -4,7 +4,7 @@
 
 <h1>A Picture Of Diner</h1>
 
-<img src="https://www.kasandbox.org/programming-images/misc/tim-berners-lee-webpage.png" width="500">
+<img src=https://steamuserimages-a.akamaihd.net/ugc/951853498850044769/CF2A1AEBBD518ECC2242134ACCDA486D32E4EFBC/ width="500">
 
 <h2>All about diner</h2>
 
