@@ -9,10 +9,10 @@
 <h2>All about diner</h2>
 
 <ul>
-<li>He is a dick sucker</li>
+<li>He is a huge faggot</li>
 <li>He has VERY skinny penis</li>
-<li>He likes to wear g strings</li>
-<li>He likes to twerk</li>
+<li>He likes to scream </li>
+<li>He likes to work it ;)</li>
 </ul>
 
 
