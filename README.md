@@ -9,10 +9,11 @@
 <h2>All about diner</h2>
 
 <ul>
-<li>He is a huge faggot</li>
+<li>He sucks at Fortnite</li>
 <li>He has VERY skinny penis</li>
 <li>He likes to scream </li>
-<li>He likes to work it ;)</li>
+<li>He likes to kill roblox streamers</li>
+  <li>His real name is Calvin Guan</li>
 </ul>
 
 
